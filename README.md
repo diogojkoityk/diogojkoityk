@@ -4,7 +4,7 @@
 - 💞️ Procuro colaborar em:Jogar.
 - 📫 Como me achar:@diogojkoityk
 
-![image](https://github.com/diogojkoityk/diogojkoityk/assets/106313513/4a9f79e8-d662-490d-addd-6bee096eb2d6)
+![image](https://media.tenor.com/pgcMAbzZ-p8AAAAd/a_levantarse.gif)
 
 
 
